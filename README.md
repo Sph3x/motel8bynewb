@@ -9,9 +9,9 @@ please do not rebrand/sell and claim as your own I intend this to help the commu
 -MrNewb
 
 
-<blockquote class="imgur-embed-pub" lang="en" data-id="ywkFbOS"><a href="https://imgur.com/ywkFbOS">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+https://imgur.com/LlYxHK5
 
-<blockquote class="imgur-embed-pub" lang="en" data-id="LlYxHK5"><a href="https://imgur.com/LlYxHK5">View post on imgur.com</a></blockquote><script async src="//s.imgur.com/min/embed.js" charset="utf-8"></script>
+https://imgur.com/LlYxHK5
 
 
 344.64 -233.26 -37.57
